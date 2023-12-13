@@ -21,6 +21,9 @@
 다만 한 강사분이 진행하는 수업이 아니다보니 전강의와 다음강의의 맥락이 끊어져있어서 그부분이 다소 아쉽지 않나 싶습니다<br>
 전체를 아우르는 강의다보니 그럴수 있겠구나하고 이해하고 있습니다<br>
 많은 도움이 되었고 현재 수강중인 강의가 완강이 되면 몇개과목을 더 신청해서 들을 예정입니다<br>
+![20231213134951](https://github.com/jwg8910/FastCampusReply/assets/84280915/dea1b9f2-edf1-4acb-96b9-4d40231507f3)
+![20231213135018](https://github.com/jwg8910/FastCampusReply/assets/84280915/7a9425cf-e1ff-47e9-86a5-c3933f194fc9)
+![20231213135051](https://github.com/jwg8910/FastCampusReply/assets/84280915/de57adbb-2914-4d82-8d48-3fb9ece61694)
 
 
 ---
